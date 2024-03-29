@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @niuniu12341234
 - 👀 I’m interested in J-pop music.
-- 🌱 I’m currently learning computer science.
+- 🌱 I’m currently learning computer science and coding.
 - 😄 Pronouns: She/her/hers
 - ⚡ Fun fact: I'm from Taiwan and I speak Chinese and English.
